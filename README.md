@@ -1,12 +1,16 @@
-Currently listening to..
+
+
 # 𝗛𝗘𝗟𝗟𝗢 !
+
+<img width="2048" height="1152" alt="rick prime and rick c-131 matching pfp-Photoroom-2048x1152" src="https://github.com/user-attachments/assets/4447ee86-0979-41ff-bd22-7a027618244a" />
+
 Welcome to my page! Feel free to check my strawpage if you want to, but other than that, here's a few things off my GitHub alone if you're too lazy to open the strawpage link.
 
 ---
 
 ## 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 !
 
-Friendly / respectful people! Shipping is okay with me, as long as it's not huge age gaps between fictional characters or OCs. Anything taboo / heavy topics, I would strongly like to avoid and as long as its respectful!
+Friendly / respectful people! Shipping is okay with me, as long as it's not huge age gaps between fictional characters or OCs. Anything taboo / heavy topics, I would strongly like to avoid.
 
 Multi-fandoms are allowed to interact; I'm not strict about that! My main fandoms right now are Rick and Morty, Doctor Who, and Jujutsu Kaisen!
 
