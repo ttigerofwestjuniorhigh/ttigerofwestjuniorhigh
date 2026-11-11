@@ -1,5 +1,8 @@
 # 𝗛𝗘𝗟𝗟𝗢 !
 
+Currently listening to..
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pyw2n44gpwcy3f42cohwslu3i4&cover_image=true&theme=default&show_offline=false&background_color=4b727c&interchange=true&profanity=false&hide_remaster=false&bar_color=76aabc&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <img width="2048" height="1152" alt="rick prime and rick c-131 matching pfp-Photoroom-2048x1152" src="https://github.com/user-attachments/assets/4447ee86-0979-41ff-bd22-7a027618244a" />
 
 Welcome to my page! Feel free to check my strawpage if you want to, but other than that, here's a few things off my GitHub alone if you're too lazy to open the strawpage link.
