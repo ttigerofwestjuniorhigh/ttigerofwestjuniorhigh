@@ -8,7 +8,7 @@ Welcome to my page! Feel free to check my strawpage if you want to, but other th
 
 ## 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 !
 
-Friendly / respectful people! Shipping is okay with me, as long as it's not huge age gaps between fictional characters or OCs. Anything taboo / heavy topics, I would strongly like to avoid.
+Friendly / respectful people! Shipping is okay with me, as long as it's not huge age gaps between fictional characters or OCs. Anything taboo / heavy topics, I would strongly like to avoid and as long as its respectful!
 
 Multi-fandoms are allowed to interact; I'm not strict about that! My main fandoms right now are Rick and Morty, Doctor Who, and Jujutsu Kaisen!
 
