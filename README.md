@@ -1,5 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pyw2n44gpwcy3f42cohwslu3i4&cover_image=true&theme=default&show_offline=false&background_color=3f3a64&interchange=true&profanity=false&hide_remaster=false&bar_color=705e9c&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pyw2n44gpwcy3f42cohwslu3i4&redirect=true)
-
+ listening to...
+ 
 # 𝗛𝗘𝗟𝗟𝗢 !
 
 <img width="2048" height="1152" alt="rick prime and rick c-131 matching pfp-Photoroom-2048x1152" src="https://github.com/user-attachments/assets/4447ee86-0979-41ff-bd22-7a027618244a" />
