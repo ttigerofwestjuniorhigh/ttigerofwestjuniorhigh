@@ -1,4 +1,8 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pyw2n44gpwcy3f42cohwslu3i4&cover_image=true&theme=default&show_offline=false&background_color=6d667f&interchange=true&profanity=false&hide_remaster=true&bar_color=797ea4&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pyw2n44gpwcy3f42cohwslu3i4&cover_image=true&theme=default&show_offline=false&background_color=6d667f&interchange=true&profanity=false&hide_remaster=false&bar_color=797ea4&bar_color_cover=true">
+  </a>
+</p>
  listening to...
  
 # 𝗛𝗘𝗟𝗟𝗢 !
