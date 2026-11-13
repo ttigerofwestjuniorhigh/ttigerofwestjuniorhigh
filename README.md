@@ -21,7 +21,7 @@ Multi-fandoms are allowed to interact; I'm not strict about that! My main fandom
 
 ## 𝗗𝗢 𝗡𝗢𝗧 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 / 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 𝗪𝗜𝗧𝗛 𝗖𝗔𝗨𝗧𝗜𝗢𝗡 !
 
-Rickorty shippers, anything incest or darkshipper related please DNI
+Rickorty shippers, anything incest or proshipper/darkshipper related please DNI (I'm an anti-shipper,, but i won't openly harrass you about your proshipping/darkshipping, i will simply just not talk to you or will strongly avoid you rather then causing controversy/ bothering people if they're not bothering me.)
 
 People over the age of 18+, please IWC, as I am a minor and still might get uncomfortable with you for certain topics or heavy stuff. Please respect that!
 
